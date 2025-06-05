@@ -5,3 +5,5 @@
 ![](https://media1.tenor.com/m/jvM7s2tiUWsAAAAC/rat-spin.gif)
 
 ![](https://media1.tenor.com/m/FNcEGDT-jeUAAAAC/spongebob-smirk.gif)
+
+![](https://media1.tenor.com/m/e-gFEHwnfBoAAAAd/funny-skeleton-man2-cryos-funny-skeleton-man.gif)
